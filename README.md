@@ -1,3 +1,3 @@
-## Projetecture
+## PROJETECTURE
 ### Coming soon!
 
